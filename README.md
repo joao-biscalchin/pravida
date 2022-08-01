@@ -1,2 +1,0 @@
-# pravida
-aprendizado para vida
